@@ -2,4 +2,4 @@
 - 👀 I’m interested in software development and music production
 - 🌱 I’m currently learning py
 - 💞️ I would be willing to work on many different kinds of projects. UI SFX, beta testing, anything really.
-- 📫 Discord: 14rss#7814 (~Please add me if you have any questions or you just want to get to know me. I'm pretty friendly! Just comment here so I know you added me >.>~)
+- 📫 Discord: 14rss#7814 (\~Please add me if you have any questions or you just want to get to know me. I'm pretty friendly! Just comment here so I know you added me >.>~)
